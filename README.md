@@ -115,8 +115,16 @@ BEST ANIME IN 2024:
 4. Spice and Wolf: Merchant Meets the Wise Wolf
 5. The Banished Former Hero Lives as He Pleases
 6. The New Gate
-
-7-20. I'm waiting the rest anime to release...
+7. The Ossan Newbie Adventure [New Added]
+8. Failure Frame: I Became the Strongest and Annihilated Everything with Low-Level Spells [New Added]
+9. Sengoku Youko: The Thousandfold Chaos Arc [New Added]
+10. Why Does Nobody Remember Me in This World? [New Added]
+11. Alya Sometimes Hides Her Feelings in Russian [New Added]
+12. I PARRY EVERYTHING [New Added]
+13. VTuber Legend: How I Went Viral after Forgetting to Turn Off My Stream [New Added]
+14. A Journey Through Another World [New Added]
+    
+15-20. I'm waiting the rest anime to release...
 
 
 ---
