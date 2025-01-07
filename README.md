@@ -1,10 +1,8 @@
-NOTE: THIS ANIME LIST WILL UPDATE AT ANY TIME. SO PLEASE GIVE IT A STAR FOR MORE!
+> NOTE: THIS ANIME LIST WILL UPDATE AT ANY TIME. SO PLEASE GIVE IT 5 STAR FOR MORE ANIME UPCOMING!
 
 Before I d*e . 
-I wanna share my anime list in short The Best Anime To Watch in entire your life. Or The Best Anime I watched. 
+I'd like to share my anime list, which I've shortened to 'The Best Anime to Watch in Your Life' or alternatively, 'The Best Anime I've Watched'.
 # Best Anime To Watch: 
-
-Aniwatch -- https://aniwatchtv.to/home
 1. Loving Yamada at Lv999!
 2. Reincarnated as a sword
 3. I Got a Cheat Skill in Another World and Became Unrivaled in The Real World, Too
@@ -82,50 +80,51 @@ Aniwatch -- https://aniwatchtv.to/home
 75. Shironeko Project ZERO CHRONICLE
 76. I Somehow Became Stronger by Raising Farming-Related Skills
 77. Heavenly Delusion
+78. The Dangers in My Heart
+79. The Daily Life of the Immortal King 
+80. Is It Wrong to Try to Pick Up Girls in a Dungeon 
+81. Mushoku Tensei: Jobless Reincarnation 
+82. BOFURI: I Don't Want to Get Hurt, so I'll Max Out My Defense 
+83. Kuma Kuma Kuma Bear
+84. The Devil Is A Part-Timer! 
+85. Sugar Apple Fairy Tale 
+86. In Another World with my Smartphone 
+87. Banished From The Hero's Party, I Decided To Live A Quiet Life In The Countryside 
+88. The Misfit of Demon King Academy 
+89. I'm Standing on A Million Lives 
+90. Unbreakable Machine-Doll 
+91. By the Grace of the Gods 
+92. The Rising of the Shield Hero 
+93. Arifureta: From Commonplace to World's Strongest 
+94. The Fruit of Evolution: Before I Knew It, My Life Had It Made 
+95. Umamusume Pretty Derby )
+96. How a Realist Hero Rebuilt the Kingdom 
+97. The Eminence in Shadow 
+98. Wind Breaker
+99. Re:Monster
+100. I Was Reincarnated as the 7th Prince so I Can Take My Time Perfecting My Magical Ability
+101. Spice and Wolf: Merchant Meets the Wise Wolf
+102. The Banished Former Hero Lives as He Pleases
+103. The New Gate
+104. The Ossan Newbie Adventure 
+105. Failure Frame: I Became the Strongest and Annihilated Everything with Low-Level Spells 
+106. Sengoku Youko: The Thousandfold Chaos Arc 
+107. Why Does Nobody Remember Me in This World? 
+108. Alya Sometimes Hides Her Feelings in Russian 
+109. I PARRY EVERYTHING 
+110. VTuber Legend: How I Went Viral after Forgetting to Turn Off My Stream 
+111. A Journey Through Another World 
+112. DAN DA DAN
+---
+# New Anime 2025
+1. I’m Living with an Otaku NEET Kunoichi!?
+2. I Want to Escape from Princess Lessons
+3. Beheneko: The Elf-Girl's Cat is Secretly an S-Ranked Monster!
+4. I Left my A-Rank Party to Help My Former Students Reach the Dungeon Depths!
+5. - up to 100...
 
-----------------------------------------------------
-Aniwatch -- https://aniwatchtv.to/home
-With Seasons: 
-1. The Dangers in My Heart (Season 1-2)
-2. The Daily Life of the Immortal King (Season 1-4)
-3. Is It Wrong to Try to Pick Up Girls in a Dungeon (Season 1-3)
-4. Mushoku Tensei: Jobless Reincarnation (Season 1-4)
-5. BOFURI: I Don't Want to Get Hurt, so I'll Max Out My Defense (Season 1-2)
-6. Kuma Kuma Kuma Bear (Season 1-3)
-7. The Devil Is A Part-Timer! (Season 1-4)
-8. Sugar Apple Fairy Tale (Season 1-2)
-9. In Another World with my Smartphone (Season 1-2)
-10. Banished From The Hero's Party, I Decided To Live A Quiet Life In The Countryside (Season 1-2)
-11. The Misfit of Demon King Academy (Season 1-2)
-12. I'm Standing on A Million Lives (Season 1-2)
-13. Unbreakable Machine-Doll (Season 1-Special)
-14. By the Grace of the Gods (Season 1-2)
-15. The Rising of the Shield Hero (Season 1-3)
-16. Arifureta: From Commonplace to World's Strongest (Season 1-Special-OVA)
-17. The Fruit of Evolution: Before I Knew It, My Life Had It Made (Season 1-2)
-18. Umamusume Pretty Derby (Season 1-3)
-19. How a Realist Hero Rebuilt the Kingdom (Season 1-2)
-20. The Eminence in Shadow (Season 1-2)
-----------------------------------------------------
 
-BEST ANIME IN 2024:
-1. Wind Breaker
-2. Re:Monster
-3. I Was Reincarnated as the 7th Prince so I Can Take My Time Perfecting My Magical Ability
-4. Spice and Wolf: Merchant Meets the Wise Wolf
-5. The Banished Former Hero Lives as He Pleases
-6. The New Gate
-7. The Ossan Newbie Adventure [New Added]
-8. Failure Frame: I Became the Strongest and Annihilated Everything with Low-Level Spells [New Added]
-9. Sengoku Youko: The Thousandfold Chaos Arc [New Added]
-10. Why Does Nobody Remember Me in This World? [New Added]
-11. Alya Sometimes Hides Her Feelings in Russian [New Added]
-12. I PARRY EVERYTHING [New Added]
-13. VTuber Legend: How I Went Viral after Forgetting to Turn Off My Stream [New Added]
-14. A Journey Through Another World [New Added]
-    
-15-20. I'm waiting the rest anime to release...
-
+Anyway, since my list is already online, you can easily find it on the internet and discover the new or best anime shows. Have a nice day!
 
 ---
 Try watching these anime in case you're feeling sad or dealing with personal problems. They can help make you happy and feel alive again.
